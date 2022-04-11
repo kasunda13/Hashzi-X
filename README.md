@@ -145,7 +145,7 @@ neotro-x  පිහිටුවීමෙන් ඔබ මෙම වගකීම�
 ## 👨‍💻Developer
 https://github.com/xneon2/Hashzi-X.githttps://github.com/kasunda13/Hashzi-X.git
 [![Chethana_Broh-TeenuhX](https://github.com/tenuh.png?size=100)](https://
-
+https://github.com/kasunda13/Hashzi-X.git
  ***ᴄʜᴇᴛʜᴀɴᴀ_ʙʀᴏ(Teenuh-X😈)***
 <a href="https://Wa.me/+94766598862">
     <img src="https://img.shields.io/badge/FindOn%20whatsapp-purple&style=plastic">
