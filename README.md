@@ -143,8 +143,8 @@ neotro-x  පිහිටුවීමෙන් ඔබ මෙම වගකීම�
 ```
 
 ## 👨‍💻Developer
-https://github.com/xneon2/Hashzi-X.git
-[![Chethana_Broh-TeenuhX](https://github.com/tenuh.png?size=100)](https://https://github.com/kasunda13/Hashzi-X.git
+https://github.com/xneon2/Hashzi-X.githttps://github.com/kasunda13/Hashzi-X.git
+[![Chethana_Broh-TeenuhX](https://github.com/tenuh.png?size=100)](https://
 
  ***ᴄʜᴇᴛʜᴀɴᴀ_ʙʀᴏ(Teenuh-X😈)***
 <a href="https://Wa.me/+94766598862">
